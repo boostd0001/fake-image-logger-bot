@@ -4,7 +4,7 @@
 
 **all made by boostd#0001**
 
-**if u wil skid this i will find u and log u up bitch**
+**if u wil skid this i will find u and log u up **
 
 **15 stars: webhook sender, custom embed , etc**
 
