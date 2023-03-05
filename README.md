@@ -6,6 +6,7 @@
 
 **if u wil skid this i will find u and log u up bitch**
 
-**15 stars: webhook sender, custom embed , etc
+**15 stars: webhook sender, custom embed , etc**
+
 discord.gg/stub
 
